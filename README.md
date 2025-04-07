@@ -30,18 +30,5 @@ Here are some ideas to get you started:
 [![](https://visitcount.itsvg.in/api?id=anand-radha-krishnan&icon=0&color=0)](https://visitcount.itsvg.in)
 
 # Contributions in Client repositories:
+
 Client [GitHub account](https://github.com/WR1E1W0)
-
-<img width="1294" alt="image" src="https://github.com/user-attachments/assets/cd87dac9-eb1b-4c73-9dc5-b13d2efe8784">
-
-
-<img width="1294" alt="image" src="https://github.com/user-attachments/assets/d31f397d-935f-4f65-b4c9-1b40e7904755">
-
-
-<img width="1294" alt="image" src="https://github.com/user-attachments/assets/52f6f2c8-09ab-4b83-97c7-ca1b69c4b113">
-
-
-
-
-
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
